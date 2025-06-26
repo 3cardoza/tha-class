@@ -1,2 +1,2 @@
-# tha class
+# tha-class
 hcch cq wc jqj
