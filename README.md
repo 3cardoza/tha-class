@@ -1,2 +1,2 @@
-# tha-class 
-espero que este bien
+# tha class
+hcch cq wc jqj
