@@ -1,3 +1,3 @@
 # tha-class
-hola this is my class
+hola
 LA ESTOY PASANDO BIEN 
